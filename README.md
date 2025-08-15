@@ -1,2 +1,2 @@
-# Aman-SIngh-Portfolio
+# Aman-Singh-Portfolio
 My  Portfolio
